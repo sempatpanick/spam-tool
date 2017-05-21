@@ -1,1 +1,1 @@
-# spam-tool
+# Tidak untuk diperjual belikan
